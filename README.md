@@ -1,0 +1,2 @@
+# -fxplanrohi
+    Fxplanrohi Trading Education
